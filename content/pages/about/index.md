@@ -9,3 +9,5 @@ description = ""
 ## My Name
 
 Here should be some info about me...
+
+* Schüler
