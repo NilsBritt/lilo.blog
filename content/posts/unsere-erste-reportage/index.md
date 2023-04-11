@@ -22,7 +22,7 @@ Deshalb werden die Probanden meist eingeladen mehrere Nächte im Labor zu verbri
 
 Die Probanden können dann währen der Testphase mit den Aufsehern ein Zeichen abmachen, um ihnen zu signalisieren, wann sie sich in einem luziden Traum befinden. Diese Zeichen bestehen meist aus schnellen links und rechts Bewegungen der Augen. Emma Peters, eine Doktorandin an der Sportuni, erklärte uns, dass wenn der Patient dieses Zeichen gegeben hat, man die Leute meist weckt und nach ihrem Traum befragt. Es ist aber auch möglich einen bestimmten Muskel, beispielsweise am Arm, zu stimulieren und danach die Person zu befragen, wie und ob diese Stimulation in den Traum eingebaute wurde. Diese Informationen haben wird von Daniel Erlacher während einem Interview mit ihm und später während einer Führung im Schlaflabor mit einer Doktorandin von ihm erhalten. 
 
-## Prof. Daniel Erlacher
+## Täglich luzid Träumen
 
 Im Zentrum für Sportwissenschaften im Neufeld haben wir Prof. Daniel Erlacher getroffen. Er ist bei der Abteilung für Bewegungs- und Trainingswissenschaften tätig. Seine Fachgebiete sind die Regeneration durch den Schlaf, Träume und eben auch luzide Träume, oder Klarträume.  
 
@@ -30,9 +30,11 @@ Als wir nach seinen eigenen Erfahrungen mit luzidem Träumen fragten, erzählte 
 
 Einige Tage später stiessen wir auf Lucas Krieg. Er arbeitet als Traum-Trainer in Nürnberg. Das Interview mit Krieg führten wir schriftlich durch, da Nürnberg für uns zu weit weg war.  Mit seiner Arbeit hat er in hunderten luziden Träumen bereits sehr viel Erfahrungen gesammelt.  
 
-## Lucas Krieg
+## Albträume mit luziden Träumen "bekämpfen"
 
 Im Alter von 5 Jahren wurde Lucas Krieg von Albträumen geplagt. Jede Nacht kehrte derselbe Traum zurück und flösste ihm Angst ein. Doch dann war eine Nacht anders als die vorherigen. Krieg wusste während des Traums, dass er träumte. Dieses Empfinden kannte er nicht, aber er war sehr beeindruckt und die Erfahrung gab ihm ein Gefühl von Selbstermächtigung. Einige Menschen haben wie Krieg die Erfahrung von Klarträume und luzide Träume gehabt, ohne dass sie dafür trainiert hatten. Die meisten Menschen müssen jedoch über längere Zeit regelmässig trainieren, um luzide Träume zu haben. Krieg hat es mithilfe des luziden Traums geschafft, sich des immer wiederkehrenden Albtraumes zu entledigen. Dafür musste er sich des Traums bewusstwerden und sich mit seinem Gegner anfreundete. Der Albtraum kehrte nie mehr zurück.  
+
+## Steigerung der Kreativität mit luzidem Träumen
 
 Seit diesem Vorfall hatte Krieg vereinzelt und ohne Zutun Klarträume und sogar luzide Träume. Erst viele Jahre später las er darüber und fand heraus, was es mit den luziden Träumen auf sich hat. Sein Interesse für das Thema nahm stark zu, und heute arbeitet er, wie gesagt, als Traum-Trainer. Aus all den hunderten luziden Träume nannte erzählte er uns seinen liebsten Traum: Bei diesem Traum fühlte sich Krieg mit allen Pflanzen und Tieren verbunden und flog gleichzeitigt über eine Insel. Dieses Gefühl der Verbundenheit fand er sehr interessant, und die Erfahrung bereitete ihm ein befreiendes Gefühl. In luziden Träumen gibt es grundsätzlich keine Grenzen. Die Vorstellung mit allen Pflanzen und Tieren verbunden zu sein, ist also plausibel. Alles ist vorstellbar, was im Gehirn abgespeichert werden kann. Sobald es aber ins Metaphysische geht, wird es ein bisschen komplexer. Der volle Zugriff ist einem in dem Fall meist gewährt, aber die volle Kontrolle nicht unbedingt.  
 
