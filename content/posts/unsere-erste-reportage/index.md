@@ -22,7 +22,7 @@ Deshalb werden die Probanden meist eingeladen mehrere Nächte im Labor zu verbri
 
 Die Probanden können dann währen der Testphase mit den Aufsehern ein Zeichen abmachen, um ihnen zu signalisieren, wann sie sich in einem luziden Traum befinden. Diese Zeichen bestehen meist aus schnellen links und rechts Bewegungen der Augen. Emma Peters, eine Doktorandin an der Sportuni, erklärte uns, dass wenn der Patient dieses Zeichen gegeben hat, man die Leute meist weckt und nach ihrem Traum befragt. Es ist aber auch möglich einen bestimmten Muskel, beispielsweise am Arm, zu stimulieren und danach die Person zu befragen, wie und ob diese Stimulation in den Traum eingebaute wurde. Diese Informationen haben wird von Daniel Erlacher während einem Interview mit ihm und später während einer Führung im Schlaflabor mit einer Doktorandin von ihm erhalten. 
 
-## Täglich luzid Träumen
+## Täglich luzide Träumen
 
 Im Zentrum für Sportwissenschaften im Neufeld haben wir Prof. Daniel Erlacher getroffen. Er ist bei der Abteilung für Bewegungs- und Trainingswissenschaften tätig. Seine Fachgebiete sind die Regeneration durch den Schlaf, Träume und eben auch luzide Träume, oder Klarträume.  
 
