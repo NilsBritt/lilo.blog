@@ -1,7 +1,7 @@
 +++
 title = "Unsere erste Reportage"
 date = "2023-04-04"
-draft = false
+draft = true
 pinned = false
 tags = ["Reportage", "LuzidesTräumen"]
 description = "Luzides Träumen ist noch ein unbekanntes und zum Teil unerforschtes Thema. In dieser Reportage wird darüber aufgeklärt. Das luzide Träumen beinhaltet einige Vor- aber auch Nachteile. Der Experte Prof. Erlacher und eine erfahrene Person Lucas Krieg wurden für diese Reportage interviewt. "
